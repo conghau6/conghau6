@@ -1,2 +1,2 @@
 ### Hi there 👋
-![alt text](https://cdn.tgdd.vn/Files/2018/07/06/1099621/front-end-developers-openings_680x428.gif)
+![alt text](![image](https://user-images.githubusercontent.com/73872511/142848109-1676fb59-6c81-4228-9b56-702917f72341.png))
